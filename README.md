@@ -1,2 +1,1 @@
-# xD gggggggggggg
-Njjkko
+# xD xD people
